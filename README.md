@@ -1,1 +1,1 @@
-# omg_wow
+this all idk, hey Spread love everywhere you go. Let no one ever come to you without leaving happier.", When you reach the end of your rope, tie a knot in it and hang on." -Franklin D. Roosevelt, The future belongs to those who believe in the beauty of their dreams.".
